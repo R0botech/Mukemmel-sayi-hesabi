@@ -1,0 +1,1 @@
+# Mukemmel-sayi-hesabi
